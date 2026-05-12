@@ -1,4 +1,4 @@
-#  
+#  grow a garden Scripts premium offers the most advanced grow a garden Script, with invisibility and auto-collect. Perfect for dominating any match.
 
 
 
